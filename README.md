@@ -197,7 +197,6 @@ Everything started here. 🔥
 
 **Himanshu Bendale**
 - 🎓 B.E. AI & DS — Mumbai University
-- 🎓 B.S. Electronic Systems — IIT Madras
 - 🔗 [GitHub](https://github.com/yourusername)
 - 💼 [LinkedIn](https://linkedin.com/in/yourprofile)
 
