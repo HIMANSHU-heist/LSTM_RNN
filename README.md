@@ -197,8 +197,8 @@ Everything started here. 🔥
 
 **Himanshu Bendale**
 - 🎓 B.E. AI & DS — Mumbai University
-- 🔗 [GitHub](https://github.com/yourusername)
-- 💼 [LinkedIn](https://linkedin.com/in/yourprofile)
+- 🔗 [GitHub](https://github.com/https://github.com/HIMANSHU-heist)
+- 💼 [LinkedIn](https://www.linkedin.com/in/himanshu-s-bendale-a695aa364?utm_source=share_via&utm_content=profile&utm_medium=member_android)
 
 ---
 
